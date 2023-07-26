@@ -1,2 +1,2 @@
 # carbonbird39.github.io
-个人博客
+PY†CHANNEL
